@@ -13,13 +13,7 @@ Consultoría tecnológica y soporte
 🌟 Nuestra Misión
 Transformar ideas en productos digitales innovadores que generen valor real para nuestros clientes.
 
-💼 Portafolio
-Hemos trabajado en proyectos para startups, empresas consolidadas y marcas que buscan evolucionar en el entorno digital.
 
-📩 Contacto
-¿Listo para llevar tu proyecto al siguiente nivel?
-Correo: contacto@21studio.mx
-Sitio web: www.21studio.mx
 
 ---
 Impulsamos tu transformación digital con tecnología y creatividad.
